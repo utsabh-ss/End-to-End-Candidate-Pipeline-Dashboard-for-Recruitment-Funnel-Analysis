@@ -1,7 +1,3 @@
-### **GAR Specialist (Human Capital)**
-
-##### 
-
 ##### **These are the steps that have been followed to complete the case study:**
 
 
@@ -52,17 +48,12 @@
 
 ###### 
 
-###### 4\. "Executive Summary" was prepared to be shared with Cameron and all the senior leaders.
-
-
-
-###### 
-
-###### 5\. "Email to Cameron" was drafted. 
+###### 4\. "Executive Summary" was prepared
 
 
 
 &nbsp;	
 
 &nbsp;	
+
 
